@@ -1,0 +1,2 @@
+# Xauusd-soso
+Signal
